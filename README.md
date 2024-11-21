@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on Bioinformatics project
 - 📫 Reach me @ contact.ahidayat@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: Consuming zinc could also prevent dandruff~
+- ⚡ Fun fact: Consuming zinc on your daily basis could also prevent dandruff~
