@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Arif
+- 👀 I’m interested in Microbiology, Molecular Biology & Bioinformatics
+- 🌱 I’m currently learning R & Phyton
+- 💞️ I’m looking to collaborate on Bioinformatics project
+- 📫 Reach me @ contact.ahidayat@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Consuming zinc could also prevent dandruff~
